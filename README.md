@@ -1,16 +1,16 @@
-## Hi there 👋
+<p align="center"> <img src= "https://i.postimg.cc/3xTnGx1g/image-2024-05-23-234849497.png"> <p>
 
-<!--
-**N0T4R0B07/N0T4R0B07** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<br/>
 
-Here are some ideas to get you started:
+<p align="center"> ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹   Consider signing my guestbook! ꉂ(˵˃ ᗜ ˂˵)   ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> <img src= "https://files.catbox.moe/djdabh.gif"> <p>
+
+<br/>
+<br/>
+
+<p align="center"> <img src= "https://i.postimg.cc/htFMSSh7/image-2024-05-24-000009543.png"> <p>
+
+<br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
+  
+<sub><i> still working on my strawpage "( – ⌓ – ) <i/><sub>
