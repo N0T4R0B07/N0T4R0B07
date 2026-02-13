@@ -2,7 +2,7 @@
 
 <br/>
 
-<p align="center"> ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹   Consider signing <a href="https://n0t4r0b0t.atabook.org/">my GuestBook!1!</a> ꉂ(˵˃ ᗜ ˂˵)   ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ </p>
+<p align="center"> ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹   fart said you have to sign <a href="https://n0t4r0b0t.atabook.org/">my GuestBook!1!</a> ꉂ(˵˃ ᗜ ˂˵)   ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ </p>
 
 <p align="center"> <img src= "https://files.catbox.moe/djdabh.gif"> <p>
 
