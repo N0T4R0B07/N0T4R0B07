@@ -2,7 +2,7 @@
 
 <br/>
 
-<p align="center"> ⊹₊˚‧︵   fart said you have to sign <a href="https://n0t4r0b0t.atabook.org/">my GuestBook!1!</a> ꉂ(˵˃ ᗜ ˂˵)   ︵‧˚₊⊹ </p>
+<p align="center"> ⊹₊˚‧︵   fart said you have to sign <a href="https://n0t4r0b0t.atabook.org/">my AtaBook!1!</a> ꉂ(˵˃ ᗜ ˂˵)   ︵‧˚₊⊹ </p>
 
 <p align="center"> <img src= "https://files.catbox.moe/djdabh.gif"> <p>
 
